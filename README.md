@@ -1,4 +1,4 @@
 # hello-world
 It is ME Badr/khouzima entering to the programming world
-I studied mechanics then i headed to the uni to study culture and media studies in the Eglish studies department. I worked with NGOs and I taught ESL foir a while.
-Currently, I am learning to code to make a big shit in my carrer. 
+I studied mechanics then i headed to the uni to study media and cultural studies at the English studies department. I worked with NGOs for few years before I went to Vietnam to teach ESL for a year.
+Currently, I am learning to code to make a big shift in my carrer. Code is the fiture and the now.. 
